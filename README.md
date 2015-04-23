@@ -1,5 +1,11 @@
 # Quotes
 
+> No plan survives contact with the enemy.
+Helmuth von Moltke the Elder
+
+> Damn the torpedoes, full speed ahead.
+David Farragut
+
 > In matters of style, swim with the current; in matters of principle, stand like a rock.
 
 Thomas Jefferson

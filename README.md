@@ -1,5 +1,7 @@
 # Quotes
 
+> Act with a determination not to be turned aside by thoughts of the past and fears of the future.
+
 > No plan survives contact with the enemy.
 Helmuth von Moltke the Elder
 

@@ -2,10 +2,14 @@
 
 > Act with a determination not to be turned aside by thoughts of the past and fears of the future.
 
+Robert E. Lee
+
 > No plan survives contact with the enemy.
+
 Helmuth von Moltke the Elder
 
 > Damn the torpedoes, full speed ahead.
+
 David Farragut
 
 > In matters of style, swim with the current; in matters of principle, stand like a rock.
